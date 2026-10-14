@@ -18,4 +18,4 @@
 </div>
 
 <img width="210" src="https://readme-typing-svg.herokuapp.com/?font=Yuyu+Short&size=90&duration=1&repeat=false&color=aad4ca&center=true&vCenter=true&width=400&height=115&lines=he/it/they
-  "/><img width="210" src="https://readme-typing-svg.herokuapp.com/?font=Yuyu+Short&size=90&duration=1&repeat=false&color=aad4ca&center=true&vCenter=true&width=400&height=120&lines=sys"/> ``
+  "/><img width="210" src="https://readme-typing-svg.herokuapp.com/?font=Yuyu+Short&size=90&duration=1&repeat=false&color=aad4ca&center=true&vCenter=true&width=400&height=120&lines=sys"/> 

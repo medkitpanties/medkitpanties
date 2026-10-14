@@ -1,4 +1,4 @@
-``<img align="left" width="60%" src="https://64.media.tumblr.com/f298e1498c7c51161c07974ce0e3543b/70f68352ef186324-4a/s400x600/420de53d9806cd6a4c2b678a4d9cb7c19cd9a830.pnj">
+<img align="left" width="60%" src="https://64.media.tumblr.com/f298e1498c7c51161c07974ce0e3543b/70f68352ef186324-4a/s400x600/420de53d9806cd6a4c2b678a4d9cb7c19cd9a830.pnj">
 
 <img align="center" width="100%" src="https://file.garden/aj60Ggxo_SnkSHYN/doegithub.png">
 

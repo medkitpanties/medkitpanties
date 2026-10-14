@@ -20,3 +20,23 @@
 <img width="210" src="https://readme-typing-svg.herokuapp.com/?font=Yuyu+Short&size=90&duration=1&repeat=false&color=aad4ca&center=true&vCenter=true&width=400&height=115&lines=he/it/they"/>
 <div align="right">
   <img width="210" src="https://readme-typing-svg.herokuapp.com/?font=Yuyu+Short&size=90&duration=1&repeat=false&color=aad4ca&center=true&vCenter=true&width=400&height=120&lines=sys"/> 
+
+<div align="center">
+ <details>
+
+<summary> quick info </summary>
+
+19yo, dni if -16
+
+^ idm brief interactions but i do not want to be friends lol
+
+c+h enc!!! i luv cuddling w people. :3 
+
+usually offab, w2i if u wanna talk or anything okay...
+
+keep in mind i struggle with conversations and i'm very awkward
+
+i'll also likely not int first because im shy lol
+
+
+</details>
